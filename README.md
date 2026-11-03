@@ -23,4 +23,4 @@ Excel
 
 ## Get in touch
 - 💼 LinkedIn: www.linkedin.com/in/cecilia-masanha-33515b13b
-- 📧 Email: ceciliammasanha@gmail.com
+- 📧 Email: ceciliamaidei@gmail.com
